@@ -1,4 +1,4 @@
-${\textsf{\color{#1ecd90} ## "Sorry, but there's only room for one abomination on this measly planet" }}$
+${\textsf{\color{#1ecd90}"Sorry, but there's only room for one abomination on this measly planet" }}$
  
 
 
