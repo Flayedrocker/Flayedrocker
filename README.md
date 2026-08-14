@@ -20,3 +20,6 @@ I do have favorites, i will admit that, there is one person who tops all others,
 I am genderfluid, bi, nonbinary, and believed to be lotusromantic (a microlabel). My pronouns will have more details on that, look out for that okay!? 
 I MADE THE GRAPHIC AWW
 ## This is my main page, major wip <33 
+
+
+<img width="540" height="378" alt="𝐒𝐓𝐑𝐀𝐍𝐆𝐄𝐑 𝐆𝐈𝐑𝐋 _ 𝐵𝑖𝑙𝑙𝑦 𝐻𝑎𝑟𝑔𝑟𝑜𝑣𝑒 ✓" src="https://github.com/user-attachments/assets/a1b160f4-e7f0-4ab1-99ea-440ff1f1decf" />
