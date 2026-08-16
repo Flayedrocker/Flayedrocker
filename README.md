@@ -4,8 +4,9 @@
 
 <img width="609" height="602" alt="c4a516b21ba22d73706e341a36cd3d59" src="https://github.com/user-attachments/assets/2fed4121-dfe5-465a-8665-fc0e13b3351a" />
 
+# connect four.
 
-
+<img width="1203" height="895" alt="Screenshot 2026-08-15 200044" src="https://github.com/user-attachments/assets/cd0d3577-413e-4be8-8575-1657b45918ed" />
 
                                             
 
