@@ -1,4 +1,4 @@
-${\textsf{\color{#1ecd90}"connect four in all new variations" }}$
+# Connect four in all new variations!! Starting with public strangulation!!
  
 
 
