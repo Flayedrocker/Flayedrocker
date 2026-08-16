@@ -1,8 +1,9 @@
-${\textsf{\color{#1ecd90}"Sorry, but there's only room for one abomination on this measly planet" }}$
+${\textsf{\color{#1ecd90}"connect four in all new variations" }}$
  
 
 
-<img width="736" height="414" alt="Untitled225_20260727013220" src="https://github.com/user-attachments/assets/1954865f-0812-442e-a83f-7529d687a798" />
+<img width="609" height="602" alt="c4a516b21ba22d73706e341a36cd3d59" src="https://github.com/user-attachments/assets/2fed4121-dfe5-465a-8665-fc0e13b3351a" />
+
 
 
 
