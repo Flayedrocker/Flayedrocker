@@ -3,8 +3,8 @@
 
 <img width="540" height="340" alt="HIATUS_Hey_there_demogorgons__Its_me_ya_boi_" src="https://github.com/user-attachments/assets/ebee9d49-e4b9-43c3-b2c1-d8c7693094f2" />
 
+${\textsf{\color{#640a0a} OSDD system , I can remember switches! Front - Billy H. , Anti }}$
 
-# ${\textsf{\color{#640a0a} Multifandom , multishipper }}$
 
 <img width="450" height="252" alt="79526b994f1f268a2ddd75a1f5cdcbf8" src="https://github.com/user-attachments/assets/298299b5-a416-4fc4-bb82-ef5cba2f0b04" />
 
