@@ -5,8 +5,7 @@
 
 ${\textsf{\color{#640a0a} OSDD system , I can remember switches! Front - Billy H. , Anti }}$
 
-
-<img width="450" height="252" alt="79526b994f1f268a2ddd75a1f5cdcbf8" src="https://github.com/user-attachments/assets/298299b5-a416-4fc4-bb82-ef5cba2f0b04" />
+ ${\textsf{\color{#640a0a} Often with close friends , Kuna , Kopi , Evan , Veritas , Coy , Blur , Zan , Eleven , Noah , Sev , Dave/cale, etc!! If I am not with them, I am often alone or at docks!! C+H is always welcome unless my name says otherwise!! I need more friends, I think I'm funny?? }}$
 
  ${\textsf{\color{#640a0a}I am genderfluid, bi, nonbinary, and believed to be lotusromantic (a microlabel). My pronouns will have more details on that, look out for that okay!? }}$
 
