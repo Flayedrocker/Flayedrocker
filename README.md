@@ -8,10 +8,7 @@ ${\textsf{\color{#640a0a} OSDD system , I can remember switches! Front - Billy H
 
 <img width="450" height="252" alt="79526b994f1f268a2ddd75a1f5cdcbf8" src="https://github.com/user-attachments/assets/298299b5-a416-4fc4-bb82-ef5cba2f0b04" />
 
-## ${\textsf{\color{#640a0a} I do have favorites, i will admit that, there is one person who tops all others, its basically a triangle. if you are in the top top zones of that ladder, you are more likely to get a response from me as I am more comfy with you
-
-I am genderfluid, bi, nonbinary, and believed to be lotusromantic (a microlabel). My pronouns will have more details on that, look out for that okay!? 
-I MADE THE GRAPHIC AWW  }}$
+## ${\textsf{\color{#640a0a} I do have favorites, i will admit that, there is one person who tops all others, its basically a triangle. if you are in the top top zones of that ladder, you are more likely to get a response from me as I am more comfy with you! I am genderfluid, bi, nonbinary, and believed to be lotusromantic (a microlabel). My pronouns will have more details on that, look out for that okay!?   }}$
 
 ## This is my main page, major wip <33 
 
