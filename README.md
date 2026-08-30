@@ -17,5 +17,5 @@ ${\textsf{\color{#640a0a} OSDD system , I can remember switches! Front - Billy H
 
 updating and redesigning git soon :eyes:
 
-# COMMS ARE OPEN , LINK TO INFO BELOW
+# ${\textsf{\color{#640a0a} " COMMS ARE OPEN , LINK TO INFO BELOW " }}$
 https://flayedcomms.straw.page
