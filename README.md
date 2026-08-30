@@ -16,3 +16,6 @@ ${\textsf{\color{#640a0a} OSDD system , I can remember switches! Front - Billy H
 <img width="540" height="378" alt="𝐒𝐓𝐑𝐀𝐍𝐆𝐄𝐑 𝐆𝐈𝐑𝐋 _ 𝐵𝑖𝑙𝑙𝑦 𝐻𝑎𝑟𝑔𝑟𝑜𝑣𝑒 ✓" src="https://github.com/user-attachments/assets/a1b160f4-e7f0-4ab1-99ea-440ff1f1decf" />
 
 updating and redesigning git soon :eyes:
+
+# COMMS ARE OPEN , LINK TO INFO BELOW
+https://flayedcomms.straw.page
