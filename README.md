@@ -20,6 +20,6 @@ https://flayedcomms.straw.page
 
 
 
++<img width="1280" height="846" alt="Tumblr_l_767801738068251" src="https://github.com/user-attachments/assets/d81079b7-aa99-410d-b129-00423f361324" />
 
-<img width="1024" height="1024" alt="Untitled251_20260914132153" src="https://github.com/user-attachments/assets/0e9c4039-fe56-4d25-8d00-d61903cab9cf" />
 
