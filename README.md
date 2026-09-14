@@ -1,7 +1,8 @@
 # ${\textsf{\color{#640a0a} " LAST CHANCE! " }}$
  
 
- <img width="1280" height="734" alt="37c7080c-3a4b-4b87-93cc-6d2de5e87dd3" src="https://github.com/user-attachments/assets/21b10280-3d3b-4dbd-908a-e637f1082cf8" />
+ <img width="1280" height="734" alt="37c7080c-3a4b-4b87-93cc-6d2de5e87dd3" src="https://github.com/user-attachments/assets/a0eb732c-fd00-49b6-b7f2-4180dbd6e926" />
+
 
 
 ${\textsf{\color{#640a0a} OSDD system , I can remember switches! Front - Billy H. , Shang Chi, Anti }}$
