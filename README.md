@@ -5,8 +5,6 @@
 <img width="1280" height="734" alt="37c7080c-3a4b-4b87-93cc-6d2de5e87dd3" src="https://github.com/user-attachments/assets/660953e6-7ea9-45cf-a64c-5c654ac1ba7f" />
 
 
-<img width="99" height="56" alt="Tumblr_l_767577810288441" src="https://github.com/user-attachments/assets/72e0ac1c-4caa-4101-8209-9a742acd099c" />
-
 
 ${\textsf{\color{#640a0a} OSDD system , I can remember switches! Front - Billy H. , Shang Chi, Anti }}$
 
@@ -23,5 +21,5 @@ https://flayedcomms.straw.page
 
 
 
- <img width="1024" height="764" alt="Tumblr_l_768054940389405" src="https://github.com/user-attachments/assets/4a50bd5b-3bc8-4d70-9a29-27f5b4b26e41" />
+<img width="1024" height="1024" alt="Untitled251_20260914132153" src="https://github.com/user-attachments/assets/0e9c4039-fe56-4d25-8d00-d61903cab9cf" />
 
