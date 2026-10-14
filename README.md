@@ -16,8 +16,8 @@ ${\textsf{\color{#640a0a} OSDD system , I can remember switches! Front - Billy H
 # ${\textsf{\color{#640a0a} mix of billy and heisenberg }}$
 
 
-${\textsf{\color{#640a0a} " COMMS ARE OPEN , LINK TO INFO BELOW " }}$
-https://flayedcomms.straw.page
+${\textsf{\color{#640a0a} " COMMS ARE CLOSED" }}$
+
 
 
 
