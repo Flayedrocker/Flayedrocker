@@ -21,6 +21,6 @@ ${\textsf{\color{#640a0a} " COMMS ARE CLOSED" }}$
 
 
 
-+<img width="1280" height="846" alt="Tumblr_l_767801738068251" src="https://github.com/user-attachments/assets/d81079b7-aa99-410d-b129-00423f361324" />
++<img width="710" height="710" alt="Tumblr_l_767801738068251" src="https://github.com/user-attachments/assets/d81079b7-aa99-410d-b129-00423f361324" />
 
 
